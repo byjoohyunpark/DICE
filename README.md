@@ -1,1 +1,1 @@
-# DICE
+# DICE (as Hackers)
